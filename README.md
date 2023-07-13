@@ -1,3 +1,3 @@
 # alumni-nitw
 
-VIJAYKUMAR BEJJANKI
+NIOS
