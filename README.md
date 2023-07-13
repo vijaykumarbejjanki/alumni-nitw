@@ -1,3 +1,3 @@
 # alumni-nitw
 
-HELLO NITW CDIS
+VIJAYKUMAR BEJJANKI
