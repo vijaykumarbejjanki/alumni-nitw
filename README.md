@@ -1,3 +1,1 @@
-# alumni-nitw
 
-NIOS
